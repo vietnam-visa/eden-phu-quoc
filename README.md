@@ -1,2 +1,2 @@
 # eden-phu-quoc
-eden phu quoc
+Guests can relax at the outdoor jacuzzi pool or enjoy a range of water sports activities by the beach. Eden Resort also provides a spa and fitness centre. Entertaining evenings can be spent singing at the karaoke rooms. <a href="http://www.hotels-in-vietnam.com/asia/vietnam/hotels_phuquoc/eden_phu_quoc_resort.html">Eden Resort Phu Quoc</a> is best boutique resort with discount rates. The beach side resort and restaurant is ideal for beach barbeques, parties, a drink or even just a lazy afternoon brunch. The restaurant is also comfortable for serving breakfast, lunch, dinner & gala diner upon request where you can enjoy a wide variety of western and local dishes
